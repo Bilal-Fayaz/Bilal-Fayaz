@@ -44,6 +44,3 @@ Open to collaboration, internships, and research opportunities.
 
 LinkedIn: [www.linkedin.com/in/bilal-fayaz-391837382]  
 Email: [bilalfayaztajik@gmail.com]  
-LinkedIn: [Add Link]  
-Email: [Add Email]  
-Portfolio: [Add Link if available]
